@@ -14,6 +14,8 @@ https://paopaohanman.com
 
 **https://hanmanpaopao.com**  （2023.8.16更新）
 
+https://pphm.gay （2023.8.16更新）
+
 https://pphm.sbs
 
 https://pphm.cfd
