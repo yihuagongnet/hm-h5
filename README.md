@@ -12,6 +12,8 @@ https://paopaohanman.com
 
 # hm-h5 pphm泡泡韩漫最新网址：
 
+**https://hanmanpaopao.com **（2023.8.16更新）
+
 https://pphm.sbs
 
 https://pphm.cfd
